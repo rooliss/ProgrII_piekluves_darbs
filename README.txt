@@ -1,0 +1,1 @@
+Darbu veica Rolands Aišpurs 12.a 
